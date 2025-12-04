@@ -2,3 +2,6 @@
 
 
 ##Lars hacker seg inn og tror de ønsker seg snille barn
+
+
+##OK, men ikke glem fred på jord, da!
