@@ -5,3 +5,5 @@
 
 
 ##OK, men ikke glem fred på jord, da!
+
+##Dessuten hadde det vært fint med en tur til Bahamas.
